@@ -1,8 +1,9 @@
 ### Canva: A Design Tool for Everyone, From Beginner to Pro
 
-Canva https://oei.la/yhqQ.html has become a household name in the design world, and for good reason. This intuitive, user-friendly platform empowers everyone, regardless of their design experience, 
+Canva has become a household name in the design world, and for good reason. This intuitive, user-friendly platform empowers everyone, regardless of their design experience, 
 to create professional-looking visuals.  Whether you're a seasoned marketer, a small business owner, or simply someone who wants to jazz up their social media, Canva has something 
 to offer. 
+To sign up click here: https://oei.la/yhqQ
 
 ## What Makes Canva So Popular?
 
