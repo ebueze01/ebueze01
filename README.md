@@ -4,7 +4,7 @@ Canva has become a household name in the design world, and for good reason. This
 to create professional-looking visuals.  Whether you're a seasoned marketer, a small business owner, or simply someone who wants to jazz up their social media, Canva has something 
 to offer. 
 To sign up click the link below: 
-## https://oei.la/yhqQ
+## https://oei.la/yhqQ.html
 
 ## What Makes Canva So Popular?
 
